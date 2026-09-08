@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-TEND941027MDFRVL08
+TEND941027MDFRVL08
